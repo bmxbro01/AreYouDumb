@@ -1,3 +1,1 @@
 # AreYouDumb
-# AreYouDumb
-# AreYouDumb
